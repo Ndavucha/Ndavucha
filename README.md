@@ -1,7 +1,7 @@
 
 
 
-[![image](https://github.com/Ndavucha/Ndavucha/assets/89539814/6137dfea-e3ef-4ede-a79b-afa79fe57805)
+![image](https://github.com/Ndavucha/Ndavucha/assets/89539814/6137dfea-e3ef-4ede-a79b-afa79fe57805)
 
 
 
